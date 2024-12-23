@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on pnw climbing, marketing or content. 
 - 📫 How to reach me
 - 
-- ⚡ Fun fact: I met mac miller 😎
+- ⚡ Fun fact: I've met the late rapper Mac Miller & 
+     I am 1 jump away from my skydiving license 😎
 
 <!---
 dannyeverest/dannyeverest is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
